@@ -1,2 +1,1 @@
-# batuhancingoz.github.io
-BATUHAN CİNGÖZ
+# BATUHAN CİNGÖZ
